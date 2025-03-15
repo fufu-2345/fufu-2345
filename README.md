@@ -1,4 +1,4 @@
-Hi 👋 My name is Kittisak PLoysumrit
+Hi 👋 My name is Kittisak Ploysumrit
 ====================================
 
 * 🌍  I'm based in Bangkok, Thailand
